@@ -8,6 +8,8 @@
 
 ## Die Entwicklung der Transistoren
 
+## Neue Kapital
+
 ## Zusammenfassung
 
 ## Literatur
