@@ -10,6 +10,8 @@
 
 ## Neue Kapital
 
+## Die Zeit der mobilen Endgeräte
+
 ## Zusammenfassung
 
 ## Literatur
